@@ -28,3 +28,8 @@ Post for the class df-mod6-mobile fork to make it easier to navigate
 ![Screenshot](ScreenshotE1-3.jpg)
 
 ![Screenshot](ScreenshotE1-4.jpg)
+
+
+#### the user also has many stuffed/plush sites in their bookmarks, including a the nefarious Global Stuffed.
+
+![Screenshot](ScreenshotE1-5.jpg)
